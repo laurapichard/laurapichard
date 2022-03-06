@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @laurapichard, I'm a 18yo CS major and I hope to learn more about it
