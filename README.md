@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @laurapichard
+- Kinda like to code
